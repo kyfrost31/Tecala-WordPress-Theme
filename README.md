@@ -1,0 +1,2 @@
+# Tecala-WordPress-Theme
+ 
